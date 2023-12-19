@@ -1,1 +1,1 @@
-Current student at UCI '25, majoring in Computer Science. Interested in all things programming and expanding my knowledge.
+Current student at UCI '24, majoring in Computer Science with a Minor in Statistics. Interested in all things programming and expanding my knowledge.
